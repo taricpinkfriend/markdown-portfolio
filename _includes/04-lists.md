@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. I like sushi 🍣
+2. Hello Tenjou-san
+3. I am Ogyaksan
